@@ -1,0 +1,100 @@
+A/A: Anti-aircraft  
+AK: Kalashnikov or AK-47, the true assault weapon of most revolutions: also used by Rhodesian Special Forces on cross-border operations.  
+Alpha Bomb: One kilogram bomb which bounced before exploding in the air.
+Ammo: Ammunition.  
+ANC: African National Congress (South Africa).  
+ANC: African National Council (Rhodesia).  
+AP: Anti-personnel landmine.  
+Baobab: African tree with extremely thick trunk and angular branches, often known as the Upside Down Tree as the branches resemble roots.  
+Bazooka: Name used by terrorists for RPG-7 rocket launcher.  
+BigMeans: TR-48, the high frequency long-range radio, main lifeline back to Tactical Headquarters and Salisbury, used throughout the Army. The SAS almost exclusively used Morse as it was more accurate on very deep-penetration operations.  
+Biltong: Dried meat cut into thin strips (in America, Jerky).  
+Black-Is-Beautiful: Black camouflage cream.  
+Blues: Army term for the Air Force.  
+BSAP: British South Africa Police.  
+Buffalo Beans: (Mucuna coriacea Bak.) One of the Security Forces most dreaded enemies! When ripe, gives off clouds of fine hairs which are highly irritating.  
+Bundu: Bush.  
+Bunker Bomb: One kilogram Rhodesian custom-made bomb with a four-six second hand-grenade fuse.  
+Callsign: A group of operators, each group with its own radio identification number.  
+Casevac/casevacked: Casualty evacuation.  
+Camo: Camouflage.  
+Chimurenga: A Shona word for "War of Liberation".  
+CIO: Central Intelligence Organisation, umbrella organisation of all intelligence.  
+COIN: Counter Insurgency.  
+CO: Commanding Officer.  
+ComOps: Combined Operations, nerve-centre of the Rhodesian war machine, which co-ordinated the various arms of the Security Forces.
+Cordtex: Instantaneous detonating cord.  
+Dak: Dakota.  
+DZ: Dropping Zone.  
+Fire Force: Highly mobile troops generally ferried by helicopters direct to contact with the terrorists. Each flight of troop-carrying helicopters was escorted by a helicopter gunship.  
+FN: (Fabrique Nationale) Belgian designed semi-automatic and automatic NATO weapon on general issue to Rhodesian Security Forces.
+FRELIMO: (The Front for the Liberation of Mozambique) which became the ruling party of Mozambique.  
+Fred/Freddie: Nickname for FRELIMO.  
+Frontline States: Tanzania, Zambia, Mozambique, Botswana and Angola.
+G-Car: Troop-carrying Alouette helicopter with twin machineguns.
+Gatecrasher: Rhodesian-manufactured charge designed to blow locks off gates.  
+H-Hour: Time attack due to start.  
+Hot Extraction: To be pulled from a dangerous situation. A true hot extraction was to be winched into helicopter using hot extraction harness worn by SAS troops.  
+Hot Pursuit: Cross-border pursuit of the enemy.  
+Hulk: Rhodesian-manufactured charge, powerful enough to blow man-size hole in a wall.  
+Indaba: Traditional meeting of African chiefs.  
+Jesse: Thick thorn type bush.  
+JOC: Joint Operational Command, local military headquarters where uniformed Police, the Army, the Air Force and Special Branch co-operated and worked in harmony to pool their intelligence.  
+K-Car: (Kill-car.) Alouette with 20 millimetre cannon, and often carrying airborne commander.  
+Knock-Knocks: Rhodesian-manufactured charges designed to open door locks.
+Kopje: Hill.  
+Kraals: African villages.  
+Lemon: Military operation that came to nothing.
+LUP: Lay-Up Position.  
+Lynx: Cessna 337.  
+LZ: Landing Zone.  
+Maningi's/Mabuno: Derogatory name for whites.  
+MNR: Mozambique National Resistance, dedicated to the overthrow of FRELIMO.  
+Mujibas: Unemployed youths who acted as the eyes, ears and runners for terrorists.  
+NCO: Non-Commissioned Officer.  
+Ndebele: Tribe indigenous to the western part of Rhodesia.  
+NS: National Service.  
+O Group: Orders Group.  
+OAU: Organisation of African Unity.  
+OC: Officer Commanding.  
+2IC: Second-In-Command.  
+Op: Operation.  
+ParaDak: Dakota bearing paratroopers.  
+PE: Plastic explosive.  
+PF: Patriotic Front. so-called alliance between Robert Mugabe's ZANU and Joshua Nkomo's ZAPU.  
+PJI: Parachute Jumping Instructor.  
+QM: Quartermaster.  
+Rafting-up: Linking boats side-by-side to form raft effect.  
+RAR: Rhodesian African Rifles.  
+Ratpacks: Rations.  
+Recce: Reconnaissance.  
+Ringmain: Device for connecting up several explosive charges, enabling them to detonate simultaneously. Normally Cordtex
+RF: Ian Smith's Rhodesian Front party.  
+RLI: Rhodesian Light Infantry.  
+RPD: Portable light machinegun.  
+RPG-7: Rocket launcher.  
+R and R: Rest and Recreation.  
+RV: Rendezvous.  
+SAS: Special Air Service.  
+SB: Special Branch.  
+Shabeen: A place where liquor is sold illegally.  
+Shrike: British exploder mechanism used in demolitions.  
+Shona: Tribe indigenous to central and eastern Rhodesia.  
+Sitrep: Situation Report.  
+SKS: (Simonov) 7,62 millimetre semi-automatic carbine.  
+Small Means: Short-range VHF radio, mainly used in ground to air communications.  
+Stag: Guard duty.  
+Strela (or SAM-7): Soviet manufactured heat-seeking missile.  
+Sunray: Leader.  
+SWAPO: South West Africa People's Organisation.  
+TA, TF: Territorial Army, Territorial Force.  
+Terr: Nickname for terrorist.  
+TTL: Tribal Trust Land.  
+UANC: United African National Council (formerly ANC) of Bishop Abel Muzorewa.  
+UDI: Unilateral Declaration of Independence.  
+WO: Warrant Officer.  
+Wombles: Police Reservists.  
+ZANU: Zimbabwe African National Union of Robert Mugabe, the political wing.  
+ZANLA: Zimbabwe African National Liberation Army, ZANU's military wing, Training was mainly Chinese orientated, and essentially Maoist in character.  
+ZAPU: Zimbabwe African People's Union of Joshua Nkomo, the political wing.  
+ZIPRA: Zimbabwe People's Revolutionary Army, ZAPU's military wing. Training was Russian-influenced.  
