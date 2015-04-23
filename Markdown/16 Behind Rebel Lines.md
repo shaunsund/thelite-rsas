@@ -1,4 +1,4 @@
-![](../Images/Images/SAS Logo.png)
+![SAS Logo](https://gitlab.sund.org/tomes/TheElite_RSAS/raw/master/Images/Images/SAS%20Logo.png)
 
 “It was war, and in war  
 All things are allowed.”  
@@ -16,7 +16,7 @@ The problem facing the Rhodesians was whether they could sit back and quietly al
 Mozambique and not just ZAN LA was an enemy and something drastic had to be done to counter the increasing threat from the east.
 How Rhodesia proposed to defend her borders and pre-empt that threat was to remain one of the best-kept secrets of the war. Rhodesia, already masters of the innovative, tactically flexible approach, now planned an even more unconventional counter-insurgency campaign in her war against ZANLA.  
 As head of the Central Intelligence Organisation Ken Flower explained later. "It was war and in war all things are allowed."  
-![](../Images/Scene Change.png)  
+![Scene Change](https://gitlab.sund.org/tomes/TheElite_RSAS/raw/master/Images/Scene%20Change.png)  
 The plan for the highly sensitive operation was unfolded in a letter that appeared on the desk of a senior CIO officer one morning in 1976. His brief was simple:  
 Making use of the strong anti-FRELIMO feeling that already existed in Mozambique, he and his department were to establish a black resistance movement ... conduct a psychological and clandestine campaign against the Marxist Mozambican government - and create a sufficiently strong opposition to challenge the existing authority.  
 Thus Rhodesia, committed to stopping guerillas taking Rhodesia by force, was to actively encourage an organisation with a similar motive in neighbouring Mozambique.  
@@ -58,7 +58,7 @@ The CIO won the day that time, but ComOps had their own way later when FRELIMO s
 Politically. a number of splinter organisations and moderate factions were looked at by the CIO, including several which had returned to Portugal. But in the end, it was decided to concentrate on the military who were indoctrinated politically anyway.  
 Africans are born politicians and it was felt that when the time was right, a natural political leader would emerge as an alternative to Machel.  
 In January. 1979. the SAS began operating with the resistance and later, small ad hoc groups were attached to them in a training and advisory role.  
-![](../Images/Scene Change.png)
+![Scene Change](https://gitlab.sund.org/tomes/TheElite_RSAS/raw/master/Images/Scene%20Change.png)  
 Their operational relationship got off to a spectacular start with a successful attack on the Mavuze hydro-electric power station on Chicamba Real Dam.  
 Having knocked out the turbines - the dam's sole generator - and a transformer station with 75 millimetre recoilless rifle projectiles, Corporal _Lucy_ was down to his last target ... and his last projectile. The target, the valve house, was a good two kilometres away on top of a hill ... a mere speck on the horizon with just the faintest glow of the coming day piping the edges.  
 It was a long shot and he told the commander as much. But there was no need to worry. _Lucy_ was on the ball and hit the jackpot with chilling precision. Then to round off the night's work, the SAS and MNR blew down an electricity pylon.  
@@ -66,7 +66,7 @@ Suddenly, over and above the crunching of the ailing turbines, came the unmistak
 They walked all that day and most of the night and managed to shake the enemy off. It was one of the longest walks the operators ever had. By the time they reached their LUP, their round trek totalled 120 kilometres (74,5 miles) and some of the men had lost so much weight that they were having to keep their trousers up with string.  
 Despite the long walk and the untimely arrival of FRELIMO, the SAS and MNR had severed the electricity supply to a vast part of Mozambique and it would be some time before the damage was repaired and service restored.  
 The MNR's local knowledge had played a significant part in the success of the mission. They had guided the SAS to the target and had been used as "faces" among the local population - gathering intelligence and spreading the MNR gospel - while the SAS remained under cover ... and it was to become their _modus operandi_ for joint missions from then onwards.  
-![](../Images/Scene Change.png)  
+![Scene Change](https://gitlab.sund.org/tomes/TheElite_RSAS/raw/master/Images/Scene%20Change.png)  
 The rebels designed their own flag and badges and eventually reached the stage when they felt they were making headway. The time had come to establish semipermanent bases inside Mozambique where new recruits could come for training and rally to the flag. Such bases would also enable them to extend their activities more rapidly.  
 One operational base was established in the hilly, heavily-wooded countryside at Gogoi 35 kilometres (22 miles) from the Rhodesian border, while the headquarters and nerve centre of the rebel organisation was deep inside Mozambique in the thick bush of the remote Serra Da Gorongoza mountains of Sofala Province.  
 ![](../Images/Maps/247 - rebel.png)  
@@ -117,7 +117,7 @@ As each month went by the MNR gained new ground. and became accepted by a vast p
 The movement continued to grow in popularity with civilians, and disillusioned government troops were attracted to their ranks, They didn't have much, before they joined the rebels' ranks so the excitement and comradeship they had with the resistance was certainly a 'big improvement compared to the dull, poor life in the countryside.  
 They were convinced their cause was just' that there had to be a better way of life; that they could secure a better future for the~selves, No one thought it would be the following day. But perhaps one day …  
 When the MNR first began its campaign to topple Machel, _Radio Maputo_, referred to the rebels as “bandits”. By 1979, they had changed their tune and were calling them “the enemy”. So seriously did he take the MNR, and so alarmed was he at the widespread nature of their activity, that Machel was forced to withdraw 200 FRELIMO operating inside Rhodesia in support of ZANLA.  
-![](../Images/Scene Change.png)  
+![Scene Change](https://gitlab.sund.org/tomes/TheElite_RSAS/raw/master/Images/Scene%20Change.png)  
 By 1980, events were moving quickly in Rhodesia, There was a fragile ceasefire and the country was gearing itself up for its first all-party British-supervised elections. The British monitoring forces were on the tail of the SAS and although they suspected they had been working externally with the MNR, they couldn’t catch them at it.  
 Machel had saved the Lancaster House talks by persuading Mugabe to stay talking at the conference table and to repay the favour, the British put a stop to the rebels' Rhodesia-based radio station.  
 While the CIO denied any connection with the station, the British - then in control of the country - knew better, and _The Voice of Free Africa_ went off the air in February, 1980.
@@ -127,7 +127,7 @@ While the MNR had provided an excellent intelligence network, the plan to overth
 Had the necessary arms, money and other resources been available when the idea was first mooted and a definite time-scale been set, they feel they would have been able to accomplish the aim. By the enforced delay in getting established. they had created their own problems as the resistance within FRELIMO had built up accordingly.  
 Whilst they would have had to convince the purist conventional military man that the use of guerilla troops was a viable alternative, the CIO felt that the MNR could have brought about a change of government in Mozambique ... ZANLA could have been kicked out of Mozambique ... and the Rhodesian war could have been all over bar the shouting by 1978/1979.  
 As for the SAS, they had played their part and felt that helping to get the MNR going was one of the most lasting, significant missions of their careers. They had been faced with the potential of moulding one of the most formidable guerilla armies in Africa - and if the MNR's impressive string of successes is anything to go by, they didn't do too badly at it either.  
-![](../Images/Scene Change.png)  
+![Scene Change](https://gitlab.sund.org/tomes/TheElite_RSAS/raw/master/Images/Scene%20Change.png)  
 Postscript: At the time of writing, the Mozambique National Resistance movement is still a major force to be reckoned with in Mozambique, and FRELIMO have been unable to quell the rebels who are tightening their grip around the capital.  
 With the historic signing of the Nkomati Peace Accord with South Africa. Mozambique, having embraced the east for so long. now seems set on turning to the west.  
 Machel has pledged to bring stability to his country and peace 10 the region. But perhaps only dialogue with the leader of the MNR can bring genuine peace?  

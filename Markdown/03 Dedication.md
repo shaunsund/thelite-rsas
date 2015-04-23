@@ -1,4 +1,4 @@
-![](../Images/Images/SAS Logo.png)
+![SAS Logo](https://gitlab.sund.org/tomes/TheElite_RSAS/raw/master/Images/Images/SAS%20Logo.png)
 
 _Dedicated to all Rhodesian Special Air Servicemen who died during operations
 also
