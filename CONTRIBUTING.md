@@ -1,11 +1,6 @@
 # Contribute to
 
-Thank you for your interest in contributing to GitLab.
-This guide details how contribute to GitLab in a way that is efficient for everyone.
-
-## Contributor license agreement
-
-By submitting code as an individual you agree to the [individual contributor license agreement](doc/legal/individual_contributor_license_agreement.md).
+This guide details how contribute to _The Elite_ in a way that is efficient for everyone.
 
 ## Closing policy for issues and merge requests
 
