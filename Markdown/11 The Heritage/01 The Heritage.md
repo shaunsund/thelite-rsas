@@ -58,3 +58,5 @@ Next day, as a direct result of that action and the ensuing pandemonium, 158 Ger
 It was now April 1945. The war in Europe had virtually run its course and the enemy was hurriedly withdrawing under pressure from the American Fifth Army. The SAS men were soon to be feted by the local population who were beside themselves with the joy of liberation. The roads swam with the transport of the advancing Army and the amount of destroyed enemy transport paid tribute to the Air Force and the guns of the Fifth Army.
 Spasmodic firing could be heard in a nearby village and was attributed to a fanatic sniper, perhaps it was the odd partisan having his last fling.
 After seven strenuous weeks deep behind enemy lines, food and sleep were now foremost in the minds of the SAS men. They returned to Florence, tired, wet and cold but thankful. They went straight to their headquarters, fell on the floor and slept. The operation was over and the prospect of leave lay ahead…
+
+![Scene Change](https://gitlab.sund.org/tomes/TheElite_RSAS/raw/master/Images/Scene%20Change.png)
