@@ -26,3 +26,5 @@ As the war in Africa drew to a close, the SAS featured in daring exploits in Sic
 In September, 1944, the ADC to General F.A.M. Browning, KB, DSO, broadcast to SAS men still behind German lines: “The operations you have carried out have had more effect in hastening the disintegration of the German Seventh and Fifth Armies than any other single effort in the Army.”
 When the fighting was over and there was no longer a need for the SAS, I Regiment SAS (the original L Detachment), 2 Regiment SAS and HQ SAS were disbanded. The Belgian and French Regiments were handed over to their respective armies and retained.
 For the British, it seemed the SAS days were over, but after a War Office analysis of the role the specialized force played during the war, it was realized that it would be ridiculous to let all that invaluable knowledge and experience go to waste. The SAS was reborn as a _territorial_ unit and merged with the resurrected Artists Rifles to become 21 SAS (Artists).
+
+![Scene Change](https://gitlab.sund.org/tomes/TheElite_RSAS/raw/master/Images/Scene%20Change.png)

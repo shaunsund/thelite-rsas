@@ -44,7 +44,7 @@ Yet the attack on the German HQ was only one of the young Rhodesian’s successe
 Overall commander Roy Farran conceded Harvey was young to lead the mission, but he had a good sergeant behind him and besides that, his enthusiasm was unbounded.
 Harvey’s partisan guide, unsuitably attired in a bowler hat, led the ambush group which included the piper, to the highway. The area was thick with enemy troops and they cautiously made their way towards the road.
 Suddenly there was a long burst of machine gun fire. The ambushers had been ambushed by the Germans. The piper received a nick in his elbow and the guide had his bowler hat knocked off.
-Somehow, as they all fell flat and rolled for cover, the guide picked up his bowler hat, replaced it and disappeared down the hillside into the night. He would reappear a few days later complete with battle scar- and bowler hat - to tell the most hair-raising story.
+Somehow, as they all fell flat and rolled for cover, the guide picked up his bowler hat, replaced it and disappeared down the hillside into the night. He would reappear a few days later complete with battle scar - and bowler hat - to tell the most hair-raising story.
 Harvey and his men immediately returned fire. Killing two enemy before rapidly extricating themselves from the position.
 Next time, they fared much better.
 They found a new position on the inside of a large “U” in the road and took up their places in the long grass about fifty paces from the road and well in the loop.
@@ -58,3 +58,5 @@ Next day, as a direct result of that action and the ensuing pandemonium, 158 Ger
 It was now April 1945. The war in Europe had virtually run its course and the enemy was hurriedly withdrawing under pressure from the American Fifth Army. The SAS men were soon to be feted by the local population who were beside themselves with the joy of liberation. The roads swam with the transport of the advancing Army and the amount of destroyed enemy transport paid tribute to the Air Force and the guns of the Fifth Army.
 Spasmodic firing could be heard in a nearby village and was attributed to a fanatic sniper, perhaps it was the odd partisan having his last fling.
 After seven strenuous weeks deep behind enemy lines, food and sleep were now foremost in the minds of the SAS men. They returned to Florence, tired, wet and cold but thankful. They went straight to their headquarters, fell on the floor and slept. The operation was over and the prospect of leave lay ahead…
+
+![Scene Change](https://gitlab.sund.org/tomes/TheElite_RSAS/raw/master/Images/Scene%20Change.png)
