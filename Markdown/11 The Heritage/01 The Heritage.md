@@ -44,7 +44,7 @@ Yet the attack on the German HQ was only one of the young Rhodesian’s successe
 Overall commander Roy Farran conceded Harvey was young to lead the mission, but he had a good sergeant behind him and besides that, his enthusiasm was unbounded.
 Harvey’s partisan guide, unsuitably attired in a bowler hat, led the ambush group which included the piper, to the highway. The area was thick with enemy troops and they cautiously made their way towards the road.
 Suddenly there was a long burst of machine gun fire. The ambushers had been ambushed by the Germans. The piper received a nick in his elbow and the guide had his bowler hat knocked off.
-Somehow, as they all fell flat and rolled for cover, the guide picked up his bowler hat, replaced it and disappeared down the hillside into the night. He would reappear a few days later complete with battle scar- and bowler hat - to tell the most hair-raising story.
+Somehow, as they all fell flat and rolled for cover, the guide picked up his bowler hat, replaced it and disappeared down the hillside into the night. He would reappear a few days later complete with battle scar - and bowler hat - to tell the most hair-raising story.
 Harvey and his men immediately returned fire. Killing two enemy before rapidly extricating themselves from the position.
 Next time, they fared much better.
 They found a new position on the inside of a large “U” in the road and took up their places in the long grass about fifty paces from the road and well in the loop.
