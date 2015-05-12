@@ -17,7 +17,10 @@ This guide details how contribute to _The Elite_ in a way that is efficient for 
 ## Style guides
 
 Operation Names
-: When referring to the names of Operations, italicise the name. IE Operation _Nickel_
+: When referring to the names of Operations, italicize the name. IE Operation _Nickel_
+
+Nicknames
+: Nicknames for people are italicized. IE _Horse_ Green
 
 ## Code of conduct
 
