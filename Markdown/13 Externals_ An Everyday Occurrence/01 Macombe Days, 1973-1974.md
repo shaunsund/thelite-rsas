@@ -1,4 +1,4 @@
-![SAS Logo](https://gitlab.sund.org/tomes/TheElite_RSAS/raw/master/Images/Images/SAS%20Logo.png)
+![SAS Logo](https://gitlab.sund.org/tomes/TheElite_RSAS/raw/master/Images/Images/SAS%20Logo.png)  
 Shortly before Rhodesia staged her rebellion and declared UDI. Brian Robinson, one of the unit’s new young lieutenants, went to Britain on attachment to 22 SAS, absorbing all he could about the role of the SAS and soaking up atmosphere from the masters.
 He was only the second Rhodesian SAS officer to have been attached to 22 and It was an invaluable experience; one which was ultimately to have a direct effect on the way the Rhodesian Special Air Service was to develop.
 For all Brian’s initial ideas were based on what 22 were doing on their operations behind enemy lines. By living with them. talking to them. thinking SAS 24 hours a day, the young Rhodesian gained a unique insight into what the SAS was all about what they should do, and perhaps just as importantly, what they should not do.
