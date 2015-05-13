@@ -58,11 +58,11 @@ The use of blanks led to wild shooting, a loss of control and a waste of ammunit
 Blanks tended to give recruits a false sense of security and it was found that as soon as they began using live rounds, they were so busy concentrating on the bangs going off around them, that they forgot to listen to their orders.
 By getting recruits used to a heavy-noise situation from the outset, they had confidence and did not hold back when it came to the real thing.
 Using realism from the start was to pay handsome dividends for the SAS, and it was a rare occasion indeed when an ammunition resupply had to be called for during an operation.
-To improve recruits’ shooting the worst shottist of the week had the dubious honour of being presented with the SAS’s special Shit Shot Bell.
+To improve recruits’ shooting the worst shottist of the week had the dubious honour of being presented with the SAS’s special _Shit Shot Bell_.
 On receiving the large cow bell, the hapless winner had to do a victory lap of honour accompanied by the clanging of the bell - and worse still the humiliating sound of applause from the rest of his course.
 Then, he had to give a quick talk on how he had managed to qualify for the award and wear the bell around his neck for seven days until he could hand it over to the next holder. Needless to say, shooting accuracy picked up remarkably.
 As fitness was one of the requisites for a Special Air Service soldier, the recruits ran everywhere for the entire twenty weeks of their training and selection.
-SAS operators always knew that there were recruits somewhere in camp by the unmistakable clanging of the Shit Shot Bell as the new boys, their young bronzed bodies bathed in sweat, sprinted somewhere on another leg of their training.
+SAS operators always knew that there were recruits somewhere in camp by the unmistakable clanging of the _Shit Shot Bell_ as the new boys, their young bronzed bodies bathed in sweat, sprinted somewhere on another leg of their training.
 By the time their basic training was over, the instructors were left with a hundred recruits.
 They now moved down to the Gwaai River Mine - a former copper mine - north of Wankie National Park where all their field work, tactical training patrols, map-reading, canoeing and demolitions were done, the main emphasis being on their quick shooting and ability to practise the basic principles of war.
 The whole idea of the six-weeks Gwaai phase was to be as authentic as possible ... to enable recruits to see what the real war would be like, set in rugged bushy terrain under realistic conditions.
@@ -76,7 +76,7 @@ Then followed the really hard part - the final selection to see if a recruit had
 By this stage, more recruits had dropped out - and the course was left with between 50-70 percent of its original members.
 Gone, too, were all the schoolboys. They were now a superbly fit bunch of tough men who had reached such a pitch that to have put them through a selection course straight away would have been pointless.
 The idea now was to physically wear them down and soften them up before selection.., to repeatedly take them up to a certain stage and then let them relax: to bring everyone down to the same level and to give each man an equal advantage.
-They now moved to Llewellin Barracks, Bulawayo, for the dreaded and intensive pre-selection Rev phase which included a series of arduous tasks thought up by the instructors. The Rev was split into hour-long stints during which the recruits boxed, ran, played baseball, wrestled in a mud bath, had a tug-of-war competition, PT sessions, swam and among other equally exhausting activities, competed in a chariot race in which they pulled the instructors around in vehicle trailers.
+They now moved to Llewellin Barracks, Bulawayo, for the dreaded and intensive pre-selection _Rev_ phase which included a series of arduous tasks thought up by the instructors. The _Rev_ was split into hour-long stints during which the recruits boxed, ran, played baseball, wrestled in a mud bath, had a tug-of-war competition, PT sessions, swam and among other equally exhausting activities, competed in a chariot race in which they pulled the instructors around in vehicle trailers.
 The instructors worked them up to such a state that they could barely move and after each physically exhausting stint, they would let the recruits relax, it was the sitting down part which failed most recruits … they would simply not get up again. Most stints were done carrying a rifle and a heavy steel ball.
 Meal times were just something they thought about ... and as they were not allowed to speak to each other either, the only things which past their lips were water, glucose, salt tablets - and hushed curses.
 One incentive to give up was a fresh meal. It was certainly a tempting inducement.
@@ -96,7 +96,7 @@ The bush was thick, there was quite a lot of game, and wherever they went in the
 The hills were strewn with giant boulders and there were a number of false crests.
 Just as they got to the top of one, so they were confronted with another.
 Even if they climbed to the top of the nearest hill, which could only be done in a circuitous mute, there were very few hills where they could see the whole area. And generally when they got to the bottom again, they were disorientated.
-Their 15 kilometre (nine mile) trek would take them all that night, and often they would fall asleep on their way after the hardships of their Rev phase.
+Their 15 kilometre (nine mile) trek would take them all that night, and often they would fall asleep on their way after the hardships of their _Rev_ phase.
 There would still be a lot of haggling and name-calling particularly over the tin trunk, which would not go around corners and kept getting stuck in trees and bushes.
 They were under a lot of pressure, too, as they had been told there was a deadline to meet Unknown to them. the time-frame didn’t really matter that much to the instructors. They were more interested in knowing how the recruits operated as a team.
 Eventually, they would stagger into the RV, and if the instructors were not there to meet them, they would have left a map and a message to meet them further along the route, just to get the recruits in a worse frame of mind.
@@ -108,4 +108,3 @@ Just to make things interesting the roneoed maps had all the roads and paths rem
 Finally, there was a speed march in which they had to cover 25 kilometres (15 miles) in five hours. So determined were recruits by this stage that the average time was three-and-a-half hours.
 After four extremely hard months, with the constant worry hanging over them of not knowing whether they would shape up or not, the sheer delight of being told they were good enough for one of the world’s most formidable units can only be imagined, and reduced many to tears.
 After passing selection, they did their parachute course; then joined the troops and went to the bush to prove themselves operationally, each soldier on his way to becoming an elite, specially-chosen operator - a man among men.
-
