@@ -31,8 +31,8 @@ Masonry was falling, tin was clattering and belching clouds of smoke filled the 
 Yet amazingly, there was no return fire and no resistance. Chioco appeared deserted, which made their takeover of the town a bit disappointing. It was always more interesting when someone shot back.  
 Undaunted, they continued sweeping through the buildings, meticulously clearing each one, shooting in every possible hiding place, before ducking out and progressing to the next building, just in case FRELIMO and ZANLA were keeping a low profile. But there was no sign of anyone.  
 In less than half an hour, the SAS had swept right through the town and by the time they had finished, all that remained standing were pock-marked shells.  
-On the commander’s orders, they put a rocket into the cantina and within seconds, the place was ablaze, exploding Coca Cola bottles adding to the confusion of the morning.  
-Next to nothing was salvaged from the cantina, but luckily the store next door escaped unscathed and they were able to rescue a few tins of food and milk and a few bottles of Manica beer - at least enough for a celebration.  
+On the commander’s orders, they put a rocket into the cantina and within seconds, the place was ablaze, exploding _Coca Cola_ bottles adding to the confusion of the morning.  
+Next to nothing was salvaged from the cantina, but luckily the store next door escaped unscathed and they were able to rescue a few tins of food and milk and a few bottles of _Manica_ beer - at least enough for a celebration.  
 There was only one victim of their takeover that day and that was a chicken which had made the fatal mistake of hanging around town; it became the star attraction at the party.  
 With the SAS out and about the countryside, the other occupants had left town and were now sleeping in the thick bush, not twenty metres from the SAS mortar position. The SAS’s harassing programme had given them the jitters and they had taken the precaution of not being caught in their buildings at first light, a popular time for the SAS to strike.  
 By the time they awoke and got organised, the commotion had died down and Chioco was under the complete control of the SAS.  
@@ -45,7 +45,7 @@ Next came a teapot, cups and saucers and fine white linen. They set the table un
 Someone with a sense of ceremony picked a few flowers and weeds and arranged them in an old tin can. It made the perfect table decoration.  
 Then, still blackened-up and filthy from their morning’s labours, they relaxed in the armchairs and got on with the festivities.  
 The Chioco tea party was not without its security, but it was a leisurely, enjoyable affair, the culmination of the SAS’s domination of the Tete Province.  
-As the sun filtered through the overhanging tree, the grimy soldiers cocked their little fingers delicately in the air and slowly sipped Manica beer out of their china tea cups.  
+As the sun filtered through the overhanging tree, the grimy soldiers cocked their little fingers delicately in the air and slowly sipped _Manica_ beer out of their china tea cups.  
 Soon, the smell of fried chicken mingled with that of the burning, smouldering buildings.  
 One of the troops found a pet monkey among the rubble and sat it on the table, breaking open a couple of tins of mangoes for the little chap.  
 Then, with the SAS in complete mastery of the town, their victorious commander stood on the front porch of the mayor’s parlour and officially pronounced himself the new Lord Mayor of Chioco. To a man, they agreed it was an honour well deserved.  
@@ -60,12 +60,11 @@ But FRELIMO and their Tanzanian friends were not prepared to allow the SAS to re
 Then a lucky mortar bomb, the only one fired with any accuracy, landed next to the SAS command post, slightly wounding Mac Mcintosh and Corporal Dave Arkwright.  
 The SAS were big enough to admit that chaos reigned for a short while, but talk of abandoning the town was met with sharp words from the SAS commander in Salisbury.  
 After the two injured men were casevacked, Captain Bob McKenna came in to take command of the Chioco siege. But there was no more fight left in FRELIMO and their Tanzanian friends...  and a few days later, the SAS finally took their leave of the smouldering ruin that once was Chioco.  
-142
-
+￼![143 - chico revisited](https://gitlab.sund.org/tomes/TheElite_RSAS/raw/master/Images/Maps/143%20-%20chioco%20revisited.png)  
 Captain Dave Dodson and his team, meanwhile, were sitting it out at Chinhanda Crossroads and having a fair share of success.  
 They were having one contact after another, and had no sooner cleaned up the road and hidden the bodies behind a hill, than another group of enemy came sauntering along.  
 A letter found on one body indicated they were part of a larger group from nearby Jeque, and the SAS, RLI and Air Force mounted an immediate airborne attack on the ZANLA camp there. Those fortunate enough to escape ran straight into the path of Dodson and his team sitting waiting for them at Chinhanda Crossroads. Their luck finally ran out - and the SAS’s mound of bodies took on new proportions.  
 The SAS tidied up the road as best they could and waited for their next victims...  
 By the end of the week, 24 enemy had been accounted for, the ambushers having been forced to move their position only once.  
 Having reached the two dozen mark, the commander decided to call it a day and leave the enemy alone for a while. The SAS had spooked them sufficiently, and if they harboured any doubts beforehand, there was a mortuary full of bodies to prove that the Rhodesians most definitely meant business...  
-All told, it had been a very productive deployment.
+All told, it had been a very productive deployment.  
