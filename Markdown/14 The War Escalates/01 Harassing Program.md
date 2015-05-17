@@ -1,17 +1,17 @@
 By 1977, the SAS were fully committed to the strangulation of Mozambique’s Tete Province, and for the first few months they were constantly in and out of the region stirring up trouble and causing havoc.
 The latter half of 1976 had been characterised by the unit being deployed on a very ad hoc basis, and according to Major Mick Graham, no one at Army Headquarters seemed to have any idea how to use special forces.
 “They had no overall strategy or plan for external operations and hence the ad hoc deployments, and us bouncing from crisis to crisis.”
-As for the SAS, he reported, they undertook to put matters right “which in terms of military procedures is mind-boggling, but unless we did something, the unsatisfactory state of affairs would persist.”
+As for the SAS, he reported, they undertook to put matters right “which in terms of military procedures is mind-boggling, but unless _we_ did something, the unsatisfactory state of affairs would persist.”
 Attacking enemy base camps was clearly out. The nationalists had learned from experience how devastating they could be and now either deployed by vehicle from major towns, or remained in camps normally attached to FRELIMO complexes for short periods - where they knew they would not be touched.
 Attacking major enemy camps was politically unacceptable to the Rhodesian hierarchy at that stage too.
 It was therefore decided that the enemy’s major vulnerability was on the routes from the main centres to the Rhodesian border.
 If the SAS destroyed their vehicles, the enemy would have to walk, which would be a hindrance to them since only limited equipment could be portered.
 Terrorists on vehicles made excellent targets as well. By ambushing and mining vehicles carrying enemy, the SAS could expect to get a high kill rate. Indeed, it might even be possible to get more kills than large-scale attacks as the target was concentrated. A four-man group, armed with landmines, claymores and automatic weapons could successfully take on such a target. By dividing into such groups, the SAS could cover a vast area and several of the routes concurrently.
 Having decided that this was the correct strategy and tactics for the SAS. the next  problem was to discover what routes the enemy were using.
-Using various forms of entry, the SAS were able to map all known and likely terrorist routes leading in and out of the Hurricane and Thrasher areas.
+Using various forms of entry, the SAS were able to map all known and likely terrorist routes leading in and out of the _Hurricane_ and _Thrasher_ areas.
 In strict terms of the SAS role, they should do the locating and then advise army or brigade headquarters of their findings and leave them to place troops to do the offensive work. But the Rhodesian Army force levels were such that this could not happen ... and it fell on SAS’s shoulders to take the offensive action.
-“Not that that was such bad news,” commented the Squadron 21C. “In fact, I firmly believe we are the only unit that can go offensive externally in small groups, make hay and get away with it”
-It was a very aggressive phase.., anything that moved - ZANLA, FRELIMO or donkey - was eliminated.
+“Not that that was such bad news,” commented the Squadron 21C. “In fact, I firmly believe we are the only unit that can go offensive externally in small groups, make hay _and_ get away with it”
+It was a very aggressive phase… anything that moved - ZANLA, FRELIMO or donkey - was eliminated.
 The SAS was to strike and strike again at the main infiltration routes from the Tete Province into Rhodesia.
 Tete town itself was the hub with a major ZANLA base being sited there. From Tete, ZANLA travelled in a variety of routes to get to the border. The routes were ZANLA’s lifeline and the SAS were determined to do all they could to destroy any ZANLA wanting to make use of them.
 Small SAS teams were deployed by freefall and others by static line and on one occasion, a small group even infiltrated by horseback.
@@ -23,6 +23,6 @@ It was an opportunity too good to miss and they successfully accounted for sever
 As the SAS were setting light to one vehicle, one “body” sat up and said: “I am ZANLA, do not kill me.” As the SAS scribe recorded at the time: “We saw no reason to give him any preferential treatment.”
 The “B” Troop boys, meanwhile, were sitting it out on a main road to establish if it was being used as an infiltration route… and to take on any likely target.
 After a couple of days, the commander felt the vehicles were moving a bit too fast for an effective ambush… and when a truck with a broken-down Land-Rover on the back came along, he and a couple of his men sauntered out on to the road and commandeered it.
-The Land-Rover was dumped on the side of the road and a suitcase left behind in the front seat was booby-trapped. Aerial reconnaissance later revealed the brokendown Land-Rover had become a blown-apart Land-Rover... and that the unfortunate soul who had lifted the booby-trapped suitcase had not lived to tell the tale.
+The Land-Rover was dumped on the side of the road and a suitcase left behind in the front seat was booby-trapped. Aerial reconnaissance later revealed the broken-down Land-Rover had become a blown-apart Land-Rover... and that the unfortunate soul who had lifted the booby-trapped suitcase had not lived to tell the tale.
 The SAS also demolished a store and a grinding mill, putting paid to ZANLA’s last-minute resupply facility on their infiltration route.
 The strain of SAS’s harassing tactics were beginning to tell and FRELIMO were forced to push more armed military into the region to counter the increasing threat from the trouble-makers across the border.

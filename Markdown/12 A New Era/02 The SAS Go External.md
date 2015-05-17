@@ -2,7 +2,7 @@ Within a few months of UDI. twenty-one ZANU had infiltrated Rhodesia from Zambia
 The third group was chased by 120 police and reservists in the biggest counter terrorist operation the country had seen. They infiltrated 250 kilometres (155 miles) into Rhodesia and reached Sinoia some 120 kilometres (74 miles) from Salisbury.  
 An informer working for the Rhodesian Special Branch had infiltrated the gang and managed to slip away from his comrades to tip of the police … and on April 29, the net tightened, a fierce battle ensued - and seven insurgents, some trained at the Nanking Military College near Peking, were killed.  
 The battle had been nothing more than a fiasco for the terrorists, but it had been the deepest penetration into Rhodesia to date and ZANU would mark it as the first day of their war of liberation, their _Chimurenga_ Day.  
-![](https://gitlab.sund.org/tomes/TheElite_RSAS/raw/master/Images/Maps/28%20-%20grapple.png)
+![28 - grapple](https://gitlab.sund.org/tomes/TheElite_RSAS/raw/master/Images/Maps/28%20-%20grapple.png)
 But for many people, however, the real war began three weeks later when a white farmer and his wife, Johannes and Barbara Viljoen, answered a knock at the door of their remote farmhouse 25 kilometres (15 miles) from Hartley and armed men began shouting at them.  
 “Then Mummy and Daddy lay down and went to sleep on the floor,” their young son told police. The Viljoens were the first Rhodesians to die at the hands of Communist-trained and armed terrorists.  
 As for the SAS, they planned to put things right and their first external operations into Zambia began.  
