@@ -1,7 +1,7 @@
-Security force missions owed much to the men in a certain red-bricked building in Salisbury’s civil service belt These were the signallers who monitored enemy messages around the clock, and who were aided by experts who pieced together the snippets of information until a picture emerged that would be of use to the war effort.  
+Security force missions owed much to the men in a certain red-bricked building in Salisbury’s civil service belt. These were the signallers who monitored enemy messages around the clock, and who were aided by experts who pieced together the snippets of information until a picture emerged that would be of use to the war effort.  
 It was from this intelligence that they were able to glean not only Zambian Army, Police and FRELIMO movements and reactions, but also the activity of their ZIPRA and ZANLA comrades.  
 Towards the end of September, one of the Salisbury eavesdroppers switched in to a rather interesting signal that gave the intelligence boffins something very definite to work on.  
-The gist of it was that sometime during the following ten days, 24 Comrades would be returning to Tete from Rhodesia for resupply, refit and debrief.  
+The gist of it was that sometime during the following ten days, 24 _Comrades_ would be returning to Tete from Rhodesia for resupply, refit and debrief.  
 The FRELIMO signals operator had made the mistake of giving the exact route the ZANLA squad would take. For the Rhodesians, it was a stroke of luck. Operations had certainly been initiated on a lot less positive intelligence.  
 News of the possible opportunity target was quickly radioed to “A” Troop, based at Mtoko on the north-eastern border with Mozambique... and Troop commander Bob McKenna gave the job to Captain Colin Willis and a team of eleven men.  
 It looked like being a fairly straight-forward ambush job. Bob told them. The two dozen ZANLA men were on their way from Mkumbura to Chioco - their major transit jump-off base - and from there they would be travelling to Biriri then on to Tete.  
@@ -13,20 +13,20 @@ Sergeant Bruce Fraser was to lead a four-man pathfinder team to find and secure 
 That night, the pathfinder team boarded a Dakota and were soon over hostile territory. They were flying at 16 000 feet, and at a point some sixty kilometres (38 miles) from the border, they leapt out into the darkness.  
 Down through the night they fell, deploying their canopies at 2 000 feet and landing on Mozambican soil uneventfully within seconds of each other.  
 Having checked that the area was uninhabited, they set about clearing the mopani scrub for the eight paratroopers who would be joining them from Rhodesia the following night.  
-
+￼  
 After midnight on September 22, the remaining eight men stood up in the lurching Dakota and checked their kit and equipment. They were five minutes out from the drop zone, and below them in the mopani scrub the pathfinder force sat patiently waiting for them.  
 Pathfinder leader Bruce Fraser looked at his watch. It was 00h59. One minute to go. He strained his ears for the familiar drone of a Dakota high above in the hot hazy atmosphere.  
 It was a perfect night for a drop. There was a gentle breeze and the moon was full, only occasionally being obliterated by the odd stray cloud skittering across the sky.  
 Then Bruce Fraser heard the unmistakable sound of a Dakota coming from the south, and tasked Captain Frank Hales, formerly with the Air Force and who had just joined the SAS, to call up the pilot.  
-“Cyclone 3 - this is 11. Do you read? Over.”
-“11 Juliet 3, read you loud and clear. We should be with you in four minutes. We have your Sunray with us who should be joining you shortly. Do you require me to circle or do you want a straight run in?”
-“Juliet 3, this is 11, Roger.” came the reply from below. “Do not circle. I have you visual. Keep coming as you are. Steady, steady… left a bit; roll out, Roger... keep her there. Red light on, Roger. Dead right ... steady, steady ... green light on.”
+“Cyclone 3 - this is 11. Do you read? Over.”  
+“11 Juliet 3, read you loud and clear. We should be with you in four minutes. We have your Sunray with us who should be joining you shortly. Do you require me to circle or do you want a straight run in?”  
+“Juliet 3, this is 11, Roger.” came the reply from below. “Do not circle. I have you visual. Keep coming as you are. Steady, steady… left a bit; roll out, Roger... keep her there. Red light on, Roger. Dead right ... steady, steady ... green light on.”  
 “GO. GO, GO,” shouted the PJIs in the Dak ... and eight heavily-laden men shuffled through the open door, to be whisked away in the slipstream. Quickly, the drills which were so instinctive to them were completed and then they were gently floating earthwards, their Bergens and vital operational kit dangling below them.  
 Another mission had begun.  
 Suddenly, a bright flare lit the night. Then came the pop-pop-popping of smallarms rounds.  
 God! thought commander Colin Willis as he floated down. His men were having a contact even before they were out of their harnesses.  
 Someone had been waiting in ambush for them. The area was supposed to be clear of people. Where was Bruce Fraser and his pathfinders? Had they been captured? What was going on? A dozen possibilities flashed through his mind as he touched down and struggled to free himself from his harness.  
-But there was no cause for alarm. There were no enemy and all his men were safe
+But there was no cause for alarm. There were no enemy and all his men were safe.  
 It had only been an accident caused by a man’s Bergen bursting into flames as he touched down. An anti-personnel landmine had been set off and the flash from that had set off plastic explosives and ammunition. Within minutes his pack was destroyed and the hapless trooper had to quickly manufacture a makeshift one from his parachute harness. His food too had gone up in smoke, but he knew his mates would help contribute towards his diet from their rations.  
 Quickly they regrouped, cached their chutes and surplus water. There was no time to be lost and they set off immediately for the ambush area.  
 Ahead of them was a very long approach march and each man carried forty kilograms of ammunition, batteries, kit and enough water and rations for a two-week bush trip.  
@@ -37,10 +37,10 @@ While his friends put up a drip and tried to get fluid into him, Colin Willis de
 They were now losing time but the commander had no intention of leaving an escort with the sick man thus depleting his callsign. He didn’t want to call for a casualty evacuation either, as it might well compromise the mission. There was nothing for it but to wait until the man was fit enough to continue.  
 They had to put a second drip in the sick trooper and it took 12 precious hours before the unfortunate man responded and Colin was sufficiently satisfied with his condition to enable the group to proceed.  
 His kit was shared out among the rest of the team and they set off once more towards the ambush area. With each step he took, the commander was becoming more and more concerned that the delay might have cost them the mission.  
-Despite the extreme heat and heavy loads, the ambush group made good time. The sweat was pouring off them, running into their Black is Beautiful and huge salt marks stained their uniforms.  
+Despite the extreme heat and heavy loads, the ambush group made good time. The sweat was pouring off them, running into their _Black is Beautiful_ and huge salt marks stained their uniforms.  
 Eventually, 48 hours after drop time, the tired but alert men, arrived in the target area - the main road between Tete and Chioco - and it didn’t take them many minutes to realise that it was not going to be such a straight-forward ambush after all.  
 There was very little foliage at that time of the year anyway, but what grass and undergrowth there was, had been deliberately burned out by FRELIMO to prevent Rhodesians springing the sort of surprises they were planning right now.  
-How on earth was Colin going to conceal his killer group and their assortment of deadly weapons?
+How on earth was Colin going to conceal his killer group and their assortment of deadly weapons?  
 His original plan had been to hide the ambush party and their landmines and heavy weapons just 100 metres from the road. But that idea was obviously out. Any enemy worth his salt would easily pick up the wires and claymores.  
 Eventually, after a detailed appreciation and lengthy discussion with the other NCOs, he decided to cut the killer group down to six men. They would put two three-man early-warning groups in good vantage points overlooking the road two kilometres either side of the main killer/ambush group.  
 They would simply have to forego using any ambushing aids. It would have to be a straight-forward rifle ambush.  
@@ -61,7 +61,7 @@ After nine days of laying in wait under almost unbearable conditions, nerves tau
 They were now in a very unpleasant situation. Daytime temperatures were still very high and they were now down to two water bottles to each man. Much against his wishes, Colin decided that he would have to send out a water-party soon to try and locate a water hole. It would mean thinning out the killer party to three men to allow the other three to search for water. But it was a risk that had to be taken.  
 The morning of the tenth day dawned and looked like being no different from the others, The heat was still shattering and the water had now almost finished. The water party would definitely have to go out that night, Colin decided.  
 Then at 12h15, the radio which had been silent for a couple of hours suddenly cracked into life.  
-It was Franz Vickers, commanding one of the two early-warning teams. “Confirmed 22 ZANLA moving along the road from west-to-east towards ambush position,” he warned. “They are moving in single file. They are well strung-out and cover at least 300 metres.”
+It was Franz Vickers, commanding one of the two early-warning teams. “Confirmed 22 ZANLA moving along the road from west-to-east towards ambush position,” he warned. “They are moving in single file. They are well strung-out and cover at least 300 metres.”  
 The commander quickly signalled to the other buddy groups and the adrenalin was already flowing as they rushed to their pre-planned positions.  
 Colin had planned the ambush in an L-shape with two soldiers, Bruce Fraser and Dave Bole, the RPD gunner, on one side of the road.., and the remaining four members of the killer group twenty metres away on high ground but on the other side of the road.  
 His idea was to let the enemy pass right in front of the bigger four-man team waiting on their high ground overlooking a dip in the road. Then, as soon as the first ZANLA drew level with Bruce Fraser and Dave Bole, they would open up and initiate the ambush. Thus the ZANLA men would be covered by rifle fire from both sides of the road, and if all went well, the SAS would get the maximum number of enemy.  
@@ -80,7 +80,7 @@ Then the ambush group ran forward on their high ground overlooking the road and 
 Then, silence. Bruce Fraser down the road, jumped up to investigate what the problem was. The survivors had run right up to the bank on the side of the road and because the ambushers were above them on their hill, the SAS could not see them.  
 Being able to see right down the road, Bruce Fraser was in the ideal position to take them on, however, and he walked into the middle of the road and began to sort them out. But he could not deal with them fast enough and quickly shouted across to his partner, Dave Bole, to join him.  
 Together the two men walked down the road, raking the sides and centre of the killing ground. The surprise was absolute. The ambushed men didn’t really stand a chance. They were so shocked at being ambushed so deep inside their safe host country that at first they thought a terrible mistake had happened and cried out “Comrade! Comrade!” to their attackers, thinking them to be FRELIMO.  
-
+![28 - grapple](https://gitlab.sund.org/tomes/TheElite_RSAS/raw/master/Images/Maps/155%20-%20rifle%20ambush.png)￼  
 But their pleas were answered only by the roar of Rhodesian weapons and Colin gave the ceasefire exactly 45 seconds after the first rifle shot had downed the ZANLA commander.  
 The silence was deafening as the SAS surveyed the scene before them.  
 Nineteen ZANLA fresh from their latest forays into Rhodesia, who a minute ago had been happy and content and looking forward to a spell of R and R, lay dead in the middle of the road, their lifes’ blood oozing into the parched soil of what they believed had been friendly terrain.  
