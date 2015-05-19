@@ -21,7 +21,7 @@ So confident were they, the barracks was only fenced on three of its four sides 
 After laying their charges around the barracks, the raiders would have to travel past Tete town ... under the giant Tete bridge spanning the Zambezi - and past FRELIMO’s main barracks. There were armed militia guarding the bridge too but they were there to protect it from attack from both sides. They were hardly likely to expect trouble from the river itself.
 It would be a daring, difficult operation. And it would be something completely different from anything the security forces had done before. Yet SAS officer Dave Dodson was confident that. given the chance, it was well within SAS capabilities.
 Fortunately, ComOps shared his view and the plan was finally given the green light. Dodson, who was to lead the mission, chose seven other operators to go with him, and preparations and rehearsals got underway immediately.
-It was going to take 250 kilograms of explosives to destroy the barracks, and it took a team of outside demolition experts, specially called in for the mission, three full days of intense activity to prepare the 12 Rhodesian-manufactured Wrecker charges.
+It was going to take 250 kilograms of explosives to destroy the barracks, and it took a team of outside demolition experts, specially called in for the mission, three full days of intense activity to prepare the 12 Rhodesian-manufactured _Wrecker_ charges.
 They were planning on using a minimum time delay of ninety minutes to give them sufficient time to get clear of the barracks before the explosives ripped the buildings apart, and the trials proved more or less accurate within five minutes.
 They were to use a number of different types of timing devices so that if one device failed to go off, there were several back-up mechanisms. Having gone so far and taken so many risks, they were not intending to take any chances of equipment failure. At last, all the preparations and rehearsals were over and everyone was ready to go.
 The eight operators deployed to the Selous Scouts fort at Mtoko, in north-east Rhodesia to prepare for the mission, and on May 30, they boarded the choppers for the first and easiest part of the operation. They were soon in enemy territory, flying over the endless mopani forests and scrub to a spot some 75 kilometres (46 miles) upriver of Tete.
@@ -60,19 +60,19 @@ But once again, nothing happened and no one came to investigate. They offered up
 Quickly, quietly, the demolition teams got on with their task, returning every so often to the central point to get more explosives. As Dave Berry hugged the shadows and helped lay the charges, he could hear the unmistakable sound of someone snoring inside the ZANLA barracks.
 Then a man wandered out of the barrack block to relieve himself close to the building, too lazy to walk across to the ablution block.
 The soldiers froze and kept to the shadows as he went about his business. But the man didn’t see them and when his toiletry was complete, he sauntered back into the barracks, oblivious to the activities out in the darkness.
-Soon everything had been done and it was time to go. The Wreckers were all propped up around the building, the ringmain linking them had been run out. and the various time delays attached.
+Soon everything had been done and it was time to go. The _Wreckers_ were all propped up around the building, the ringmain linking them had been run out. and the various time delays attached.
 As stealthily as they had arrived, so they retraced their steps and left the barracks.
 They climbed into their canoes and pushed off, riding much higher in the water now that they no longer had their cargo of explosives.
 There was no need to raft-up any more and the eight canoeists moved out into
-
+￼![203 - urban](https://gitlab.sund.org/tomes/TheElite_RSAS/raw/master/Images/Maps/203%20-%20urban.png)
 midstream and headed off into the night, the current carrying them swiftly away from the impending trouble.
-Dave Berry and Sergeant Small Bez were ahead and nearing the huge Tete bridge spanning the Zambezi; some of the others were abreast of the barracks and the commander and his partner had just left the bank and were fifty metres from the target.
+Dave Berry and Sergeant _Small Bez_ were ahead and nearing the huge Tete bridge spanning the Zambezi; some of the others were abreast of the barracks and the commander and his partner had just left the bank and were fifty metres from the target.
 It was 15 minutes since they had activated the time delays and there was still another 75 minutes to go before their charges went off. But by then, they would be well away and en route to their LZ twenty kilometres (12 miles) downstream.
 Suddenly, unexpectedly, a tremendous thunderclap tore into the night behind them as almost a quarter of a ton of plastic explosive sent the ZANLA barracks sky high. Flames licked the building and a pall of smoke hung in the air.
 Startled though the eight canoeists were, there was no time to analyse what had gone wrong with the time delays.
 Everyone began paddling as fast as he could, each man feeling very vulnerable and just a little nervous. By now the sky had a reddish hue to it and men could be seen running around Tete Bridge ahead of them.
-As the front canoeists, Dave Berry and Small Bez went under the bridge, they saw a FRELIMO Land-Rover shoot across the bridge, stop at a control point, continue on to the other side; do a U-turn, then roar back again. There was a fair old panic going on and there were some angry people charging around.
-Dave and Small Bez stopped paddling and got their weapons ready. But they were unable to stop their canoe and the current continued to carry them downstream.
+As the front canoeists, Dave Berry and _Small Bez_ went under the bridge, they saw a FRELIMO Land-Rover shoot across the bridge, stop at a control point, continue on to the other side; do a U-turn, then roar back again. There was a fair old panic going on and there were some angry people charging around.
+Dave and _Small Bez_ stopped paddling and got their weapons ready. But they were unable to stop their canoe and the current continued to carry them downstream.
 Luckily, when they emerged from the other side of the bridge, they did so unnoticed and continued on their way passing the main FRELIMO barracks uneventfully.
 The others meanwhile, were still paddling downstream, hoping against hope to get past the main FRELIMO barracks and the bridge unnoticed.
 But despite much coming and going on the bridge, no one seemed to notice the canoeists far below them - and they too continued their journey without incident.
