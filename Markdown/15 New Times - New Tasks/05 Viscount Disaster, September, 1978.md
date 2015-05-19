@@ -7,8 +7,8 @@ Both Strelas had been fired at South African Airways flights but something had g
 They were the first attempts of aggression against civilian aircraft and the incidents were hushed up. Only a handful of security force people knew about them.
 ZIPRA was not amused that the holiday makers had escaped with their lives. They accused their Russian backers, who had supplied the missiles, of tampering with them and making them ineffective. A Russian technician was immediately sent to Lusaka to examine the Strelas still held there and he came to the conclusion that there was nothing wrong with them. If they were not functioning properly, it was ZIPRA’s own fault, he said.
 They were obviously transporting them too roughly to the war zone: if they wanted results, they would just have to be more careful.
-
-Shortly afterwards, a planeload of suntanned holiday makers who had been spending a relaxing weekend break at Kariba boarded an unarmed Air Rhodesia Flight RH 825, the Viscount Hunyani for the return journey to Salisbury.
+￼![Scene Change](https://gitlab.sund.org/tomes/TheElite_RSAS/raw/master/Images/Scene%20Change.png)
+Shortly afterwards, a planeload of suntanned holiday makers who had been spending a relaxing weekend break at Kariba boarded an unarmed Air Rhodesia Flight RH 825, the Viscount _Hunyani_ for the return journey to Salisbury.
 Despite the war, the lakeside holiday resort had continued to flourish and Kariba remained a tourists’ paradise of game-viewing, water sports, fishing, evenings in the casino, and unmatched sunsets.
 It was a retreat to fly to. Air travel was the best way to go: everyone knew that. It was far safer than travelling by road, which carried all the risks of hitting a landmine or being ambushed.
 Within minutes, the 58 passengers and crew had left Kariba and the great manmade lake dividing Rhodesia from Zambia was behind them. They were still climbing, flying over the endless scrub and remote, sparsely populated bush that made up the vast Urungwe Tribal Trust Land.
@@ -18,14 +18,14 @@ Something smashed into two of the plane’s four engines with a thud, violently 
 One of Nkomo’s Russian-supplied deadly heat-seeking missiles had finally found its mark, its infra-red guidance control automatically homing in on the heat given off by the still-climbing Viscount.
 It struck the trailing edge of the jet pipe of the number three engine, spraying shrapnel into the wing and shattering the fuel pipe. Its incendiary device started a fierce fire in the wheel well, which was filled with spilled fuel.
 “I can’t... ” First Officer Garth Beaumont said in part of a message picked up by a National Parks plane at 17h11. The rest of the message was never heard.
-A minute later, Kafiba Airport picked up his desperate May Day signal.
+A minute later, Kariba Airport picked up his desperate May Day signal.
 “I’ve lost both starboard motors, we are going in …”
 Inside the cabin, one man jumped up and dashed along the aisle shouting for a fire extinguisher, another tried to get through a window as the plane nosedived. One wing was already in flames.
 Calmly, gallantly, a hostess instructed the frightened passengers to fasten their seatbelts and put their heads between their knees. Captain John Hood spoke over the intercom, telling them to brace themselves for a forced landing.
 They were heading for a clearing in the thickly-treed terrain. It looked like a cotton field. Miraculously, the captain crash-landed his stricken Viscount. putting it down almost like a feather. But before he could stop it, the Viscount ploughed into a deep concealed ditch dividing the field. The fight wing hit two trees, tearing portions off the wing tip, and the plane disintegrated.
-An intense fire broke out. consuming everything that was burnable.
+An intense fire broke out, consuming everything that was burnable.
 Air Rhodesia Flight 825 was over.
-
+￼![Scene Change](https://gitlab.sund.org/tomes/TheElite_RSAS/raw/master/Images/Scene%20Change.png)
 In Salisbury, relatives who had gone to meet the flight were told to go home. The plane had left Kafiba on time but there was no news of it. The airport would let them know the moment they heard anything.
 Not far away, the telephone jangled discordantly at SAS Major Garth Barrett’s home in the suburbs.
 It was ComOps. Could the SAS Commanding Officer put some “paramedics” as the caller described them, on standby and ready for an immediate operation? When pressed for a reason, the voice at the other end of the telephone told him that a Viscount was missing.
@@ -55,7 +55,7 @@ For a moment, the soldiers could hardly believe it. After what they had just wit
 They sprinted forward to help them, and as he ran, medic Bruce Langley shouted across asking if anyone was injured. Amazingly, there were no broken bones.
 The three survivors were a honeymoon couple… and Anthony Hill, a close friend of RSM Pete Allan. It must have indeed been a comforting sight to Mr Hill to see a familiar face coming down the track… and the SAS man had soon brewed up a cup of tea for his friend.
 Bruce Langley set up his stove and made the bride coffee. She gulped it down in one go. Some of her clothes had been torn away in the shock of the blast and someone organised a blanket for her.
-Bit by biL the survivors told what had happened… of how they had escaped from the broken wreck, helping some of the injured to safety. They returned to look for warm clothing and blankets and were searching the luggage when a group of terrorists arrived carrying AKs.
+Bit by bit, the survivors told what had happened… of how they had escaped from the broken wreck, helping some of the injured to safety. They returned to look for warm clothing and blankets and were searching the luggage when a group of terrorists arrived carrying AKs.
 “Don’t worry,” the ZIPRA men had shouted. “We won’t harm you,”… and they laughed as they ran towards the wreckage.
 At first, some of the survivors thought they had come to help them. Some were even thanking them. But then ZIPRA suddenly turned on them and mowed them down.
 The three survivors ran towards a ridge. As the bridegroom ducked to retrieve his wife’s dropped wedding ring, the attackers fired over his head.
@@ -69,7 +69,7 @@ Scores of angry farmers joined the hunt for the men responsible.
 A nursing sister arrived by helicopter and went hysterical at the incredible scene.
 Two minutes later she was on her way out again.
 The SAS men had played their part and flew home. The ghost of flight RH 825 would haunt them and Rhodesians for always.
-In a BBC interview, Joshua Nkomo proudly took credit for the Viscount disaster. The Fat Man cackled as he boasted that it had been ZIPRA who had shot down the plane. He denied they had killed the survivors, but Dr Callistus Ndlhovo the ZAPU man at the UN, admitted ZIPRA had killed the survivors ... but not the children.
+In a BBC interview, Joshua Nkomo proudly took credit for the Viscount disaster. _The Fat Man_ cackled as he boasted that it had been ZIPRA who had shot down the plane. He denied they had killed the survivors, but Dr Callistus Ndlhovo the ZAPU man at the UN, admitted ZIPRA had killed the survivors ... but not the children.
 In his autobiography, Nkomo said that while his men helped the survivors to safety and took them water, “I have no idea how the ten died. I do not believe they were killed by our people. I hope not.”
 A few weeks earlier Ian Smith had offered Nkomo the hand of friendship and some power-sharing in the transitional government at a secret meeting in Lusaka. Nkomo was always viewed as the lesser of the two evils, but there was no way Nkomo - after the incident Ian Smith called him a “monster” - could be welcomed back.
 Rhodesians were beside themselves with anger at the ruthless and cowardly outrage. The country mourned and morale plummeted to new depths. The mood was not helped by inaccurate reports in South Africa that the white victims had been raped before being shot.
@@ -81,10 +81,10 @@ A memorial service was held in Salisbury’s Anglican Cathedral five days after 
 Passers-by wept as they walked past the grim silent crowd. The SAS men who had found the broken, burnt and butchered bodies were there, too, to pay their last respects to the victims.
 Within a few years, the Russians would shoot down a South Korean plane carrying 269 innocent passengers. The western world would be united in its condemnation of such a barbaric act. But there was no such reaction to the Rhodesian atrocity.
 Only, as the Dean of Salisbury’s Anglican Cathedral. John de Costa, pointed out, a “deafening silence”.
-“... Nobody who holds sacred the dignity of human life can be anything but sickened at the events attending the crash of the Viscount Hunyani... this bestiality, worse than anything in recent history, stinks in the nostrils of Heaven. But, are we deafened with the voice of protest from nations who call themselves civilised? We are not Like men in the story of the good Samaritan, they pass by on the other side.”
+“... Nobody who holds sacred the dignity of human life can be anything but sickened at the events attending the crash of the Viscount _Hunyani_... this _bestiality_, worse than anything in recent history, _stinks_ in the nostrils of Heaven. But, are we deafened with the voice of protest from nations who call themselves civilised? We are not Like men in the story of the good Samaritan, they pass by on the other side.”
 There had been no loud condemnation by Britain’s Dr David Owen, nor from the President of the United States, or the Pope, the Chief Rabbi, or the Archbishop of Canterbury, he said in his sermon.
 Blame lay not only with those who fired the guns, but also with the United Nations and their church equivalent the World Council of Churches”… from the safety and comfort of New York and Geneva, high moral attitudes can safely be struck. For us in the sweat, the blood, the suffering, it is somewhat different.
 “... The ghastliness of this ill-fated flight from Kariba will be burned upon our memories for years to come.”
-
+￼![Scene Change](https://gitlab.sund.org/tomes/TheElite_RSAS/raw/master/Images/Scene%20Change.png)
 Within a couple of months, the tracker who had been in the team which had found the wreck of the Viscount returned to Urungwe ostensibly to run an SAS officer selection course. However, while there, he used their skills to ambush known paths in the hope of getting some of the men responsible for the Viscount episode. After a tipoff, the SAS accounted for three of the men responsible for killing the survivors.
 Five months later, a second Viscount was downed. Again, the SAS were called in to help. Then they were told the panic was over. Their services were not needed. This time everyone on board had perished ...
