@@ -2,7 +2,7 @@
 
 # THE ELITE: The story of the RHODESIAN SPECIAL AIR SERVICE
 
-Manuscript (plain text), Markdown and supporting images from the book:
+Markdown and supporting images from the book:
 
 _THE ELITE: The story of the RHODESIAN SPECIAL AIR SERVICE_ by Barbara Cole
 
@@ -14,9 +14,6 @@ ISBN: 0 620 08517 7
 
 Images
 : Images and Scans
-
-Manuscript
-: Plain Text files
 
 Markdown
 : Markdown format with Images and Styles
