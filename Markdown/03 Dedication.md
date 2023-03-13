@@ -1,4 +1,4 @@
-![SAS Logo](https://gitlab.sund.org/tomes/TheElite_RSAS/raw/master/Images/Images/SAS%20Logo.png)
+![SAS Logo](https://github.com/shaunsund/thelite-rsas/raw/main/Images/Images/SAS%20Logo.png)
 
 _Dedicated to all Rhodesian Special Air Servicemen who died during operations
 also
@@ -11,6 +11,6 @@ Another time, another place_
 
 
 
-It was the best of times  
-It was the worst of times  
+It was the best of times
+It was the worst of times
 — Dickens

@@ -1,4 +1,4 @@
-![SAS Logo](https://gitlab.sund.org/tomes/TheElite_RSAS/raw/master/Images/Images/SAS%20Logo.png)
+![SAS Logo](https://github.com/shaunsund/thelite-rsas/raw/main/Images/Images/SAS%20Logo.png)
 To the west meanwhile, there were other enemies. Throughout January and February, 1978, a Special Branch informer had been monitoring a ZIPRA presence near his kraal close to the Botswana/Rhodesia border - and it had become very apparent that ZIPRA had set up another transit camp inside Botswana.
 The Botswana Government’s policy had always been to give sanctuary to Rhodesian “refugees” as well as ZIPRA deploying from Rhodesia for rearmament and test and recreation.
 The so-called “refugees” were largely ZIPRA recruits - volunteers or abducted teenagers - who, after undergoing training in Zambia or elsewhere, returned home as fully-fledged terrorists. It was estimated that eighty percent of ZIPRA were taken at gunpoint through Botswana.

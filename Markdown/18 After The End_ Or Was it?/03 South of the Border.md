@@ -1,14 +1,14 @@
-The guns had fallen silent and the war was over. Yet there was still one more secret operation that the SAS had to carry out. This time, however it would take them southwards and not to the north or east as in the past.  
-Their mission: to get their memorial plinth bearing the names of the war dead out of the clutches of the new order. It would certainly mean very little to the men the soldiers had been fighting during the long bitter years of war.  
-Other Rhodesian memorials had been hauled from their stands and it seemed certain that with the passing of time, the SAS plinth would go the same way.  
-As always, top secrecy was clamped on the operation and the 25-ton plinth was spirited away from Kabrit Barracks, loaded on to an Army truck, then camouflaged with a tarpaulin. Not long afterwards, the truck and its secret cargo crossed the border into South Africa where it now stands in the peaceful gardens of a MOTH ex-servicemen’s home outside Durban.  
-For those who dared and died, the final battle had been won.  
-• • •  
-On December 31, 1980, the Rhodesian SAS disbanded. A telegram from 22 SAS in Britain paid tribute to the operators:  
-“Farewell to a much admired sister unit. Your professionalism and fighting expertise has always been second to none throughout the history of the Rhodesian SAS. C Sqn still remains vacant in 22 SAS orbat.”  
-At a ceremony on December 13, the last official function of the unit, the last CO, the most decorated member of the security forces, had this to say:  
-“We will leave here not only in sorrow but filled with pride, dignity and honour in ourselves and in 1 SAS. We have much to be grateful for.  
-“I am eternally grateful to those men who served with the unit before we did: to those among us who have lost loved ones: to those who were wounded: to those friends, and there are many of them, who have stood by us: to those wives and families who stood behind us: to those who have fought with such courage beside us, and especially to those who gave their lives for Rhodesia and the unit.  
-“We have not let them down and we will not forget them.  
-“I know that in the years to come, we can, with the greatest pride say: ‘I served with the Rhodesian SAS.’  
-“May God bless you and thank God we did our duty.”  
+The guns had fallen silent and the war was over. Yet there was still one more secret operation that the SAS had to carry out. This time, however it would take them southwards and not to the north or east as in the past.
+Their mission: to get their memorial plinth bearing the names of the war dead out of the clutches of the new order. It would certainly mean very little to the men the soldiers had been fighting during the long bitter years of war.
+Other Rhodesian memorials had been hauled from their stands and it seemed certain that with the passing of time, the SAS plinth would go the same way.
+As always, top secrecy was clamped on the operation and the 25-ton plinth was spirited away from Kabrit Barracks, loaded on to an Army truck, then camouflaged with a tarpaulin. Not long afterwards, the truck and its secret cargo crossed the border into South Africa where it now stands in the peaceful gardens of a MOTH ex-servicemen’s home outside Durban.
+For those who dared and died, the final battle had been won.
+• • •
+On December 31, 1980, the Rhodesian SAS disbanded. A telegram from 22 SAS in Britain paid tribute to the operators:
+“Farewell to a much admired sister unit. Your professionalism and fighting expertise has always been second to none throughout the history of the Rhodesian SAS. C Sqn still remains vacant in 22 SAS orbat.”
+At a ceremony on December 13, the last official function of the unit, the last CO, the most decorated member of the security forces, had this to say:
+“We will leave here not only in sorrow but filled with pride, dignity and honour in ourselves and in 1 SAS. We have much to be grateful for.
+“I am eternally grateful to those men who served with the unit before we did: to those among us who have lost loved ones: to those who were wounded: to those friends, and there are many of them, who have stood by us: to those wives and families who stood behind us: to those who have fought with such courage beside us, and especially to those who gave their lives for Rhodesia and the unit.
+“We have not let them down and we will not forget them.
+“I know that in the years to come, we can, with the greatest pride say: ‘I served with the Rhodesian SAS.’
+“May God bless you and thank God we did our duty.”

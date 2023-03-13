@@ -1,6 +1,6 @@
-In June, 1978, former SAS officer Chris Schollenberg, then a Selous Scout, became the first holder of the country’s highest bravery award, the Grand Cross of  Valour, equivalent to the Victoria Cross and the American Congressional Medal of Honour.  
-There was only one other GCV ever awarded and that too went to an SAS officer.  
-Unfortunately, his identity cannot be revealed and the part of his citation recorded here tells only some of the story.  
-He was the most decorated soldier in the Rhodesian security forces and the only person to get the hat-trick – the Bronze Cross of Rhodesia, the Silver Cross and the top gallantry honour, the GCV. Naturally too, he held the SAS’s own coveted Wings on Chest honour awarded to outstanding operators.  
-His citation reads, in part: “His leadership and performance on operations has been of the highest order, his devotion to duty has been extremely outstanding. And his contribution to the war effort has been incalculable...  
-“His extreme devotation to duty, performance on operations and general conduct have contributed greatly to the successes this unit has achieved.”  
+In June, 1978, former SAS officer Chris Schollenberg, then a Selous Scout, became the first holder of the country’s highest bravery award, the Grand Cross of  Valour, equivalent to the Victoria Cross and the American Congressional Medal of Honour.
+There was only one other GCV ever awarded and that too went to an SAS officer.
+Unfortunately, his identity cannot be revealed and the part of his citation recorded here tells only some of the story.
+He was the most decorated soldier in the Rhodesian security forces and the only person to get the hat-trick – the Bronze Cross of Rhodesia, the Silver Cross and the top gallantry honour, the GCV. Naturally too, he held the SAS’s own coveted Wings on Chest honour awarded to outstanding operators.
+His citation reads, in part: “His leadership and performance on operations has been of the highest order, his devotion to duty has been extremely outstanding. And his contribution to the war effort has been incalculable...
+“His extreme devotation to duty, performance on operations and general conduct have contributed greatly to the successes this unit has achieved.”
